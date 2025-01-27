@@ -2,6 +2,20 @@
 
 **Project QT** is a manga aesthetic game application of match-3 puzzles and combats that allows players to discover the characters and their stories as they progress.  
 
+
+
+## ⏬🌐🌐📌⬇ [Download Project QT APK](https://newsloopy.com/project-qt-apk/) ⬇📌🌐🌐⏬
+
+|:-------------------------------------------------:|
+[![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://newsloopy.com/project-qt-apk/)  |
+| *App Name*: Project QT                     
+| *Platform*: Android 5.0+                     
+| *Size*: 282.71 Mb                                                  
+| *Version*: 13.5.0    |
+| *Category* : Games, MOD Files Video Players & Editors, |
+| *MOD* : Premium Unlocked
+| ⭐⭐⭐⭐⭐ |
+
 Developed by Nutaku, **Project QT APK** combines adventure, strategy, and action, transporting players to a fantasy realm full of mystery, excitement, and intrigue. Players will encounter powerful enemies, explore parallel worlds, and solve cosmic riddles.  
 
 With an engrossing plot, gorgeous graphics, and unique gameplay elements, Project QT APK keeps players engaged for hours.  
